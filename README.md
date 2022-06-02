@@ -9,9 +9,9 @@
 
 - 🔭 I’m currently working on **web designing**
 
-- 🌱 I have learning **webdesign and development,c,c++**
+- 🌱 I have learned **web designing and development,c,c++,python,graphic designing and video editting**
 
-- 👯 I’m looking to collaborate on **dream to hire**
+- 👯 I’m looking to collaborate on **dream to hire for future and develpment**
 
 - 📫 How to reach me **dilawarbaig15203@gmail.com**
 
